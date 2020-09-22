@@ -1,3 +1,1 @@
-
-to be or not to be there is not only a question 
-its should be a answer on somewhere
+路漫漫其修远兮，吾将上下而求索。
